@@ -1,1 +1,1 @@
-# XTG-Token
+# XTG-COIN
